@@ -1,2 +1,3 @@
-made by kyler rem
-all graphics and images by me
+# kyler's archive
+my other works are available on social media & other sites
+
